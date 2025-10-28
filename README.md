@@ -2,7 +2,6 @@ Curso preparatório para Pública Profissão de Fé, baseado no enunciado do Cre
 
 | Nr | Título da lição                           | Tópicos | Texto básico refs. =>             | dom         | seg        | ter          | qua        | qui           | sex           | sáb         |
 | -- | ----------------------------------------- | ------- | --------------------------------- | ----------- | ---------- | ------------ | ---------- | ------------- | ------------- | ----------- |
-|    |                                           |         |                                   |             |            |              |            |               |               |             |
 | 1  | A Pública profissão de fé                 |         | Rm 10.8-15                        | Cl 3.8-17   | Lc 12.4-9  | Rm 10.8-11   | Tg 1.21-27 | ii Co 5.17-21 | Mt 13.1-23    | Ec 5.1-5    |
 | 2  | As Escrituras Sagradas                    |         | salmo 19 / Hb 1.1-3               |             |            |              |            |               |               |             |
 | 3  | A Trindade                                |         | Gn 1                              |             |            |              |            |               |               |             |
