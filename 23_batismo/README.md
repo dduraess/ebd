@@ -10,11 +10,16 @@ Na aula anterior, vimos três coisas sobre os sacramentos, que são importantes 
 
 i Pelo batismo entramos na Igreja 
 
-Desde que o homem pecou, Deus não ficou impassível ao problema do pecado, mas começou a separar um povo para Si a distinguí-lo por meio de um Pacto, de uma Aliança e instituiu um sinal  
+O primeiro ponto então é que o batismo é uma instituição de Cristo como cabeça e dono da Igreja. Ele prefacia explicando (em Mt 28.18-19), "Toda autoridade Me foi dada nos céus e na terra." e continua com seguinte ordem: "Ide, portanto e fazei discípulos de todas as nações, batizando-os em nome do Pai, do Filho e do Espírito Santo". A partir dessa ordem, todos os que desejam ser admitidos como discípulos do Senhor Jesus, devem fazer isso através do batismo. Por isso existe não apenas uma identificação do batismo com a circuncisão como sinal externo da Aliança com Deus, mas uma renovação, uma substituição, de forma que não exitem dois sinais, um para o judeu e outro para os gentios. A partir da concretização dos símbolos do Antigo Testamento em Cristo, não precisamos mais voltar para os rudimentos, para os sinais quando já temos no Senhor Jesus aquilo que o sinal representa. 
 
-igual a introdução da outra aula ligando à Teologia do Pacto 
+Vimos então, na aula passada em Gn 17, como Deus instituiu 
+(ligar à Teologia do Pacto e a revelação progressiva, não no sentido de que há um defeito no Pacto da Lei, mas na natureza humana pelo drama do pecado que não é capaz de se submeter aos padrões da Lei pela carne enferma de pecado)
 
-1) Em primeiro lugar, batismo é um ritual de admissão na igreja, conforme instituído e ordenado pelo Senhor Jesus. A ordem foi a seguinte: "Toda autoridade Me foi dada nos céus e na terra. Ide, portanto e fazei discípulos de todas as nações, batizando-os em nome do Pai, do Filho e do Espírito Santo" (Mateus 28.18-19). Isso significa que o Dono da Igreja, a partir da consumação da Nova Aliança determinou que, tanto judeus como gentios, a partir do momento em que eles recebessem a identidade de discípulos de Cristo, deveriam ser admitidos dessa forma na Igreja
+ii
+
+i 
+
+1) Em primeiro lugar, batismo é um ritual de admissão na igreja, conforme instituído e ordenado pelo Senhor Jesus.  Isso significa que o Dono da Igreja, a partir da consumação da Nova Aliança determinou que, tanto judeus como gentios, a partir do momento em que eles recebessem a identidade de discípulos de Cristo, deveriam ser admitidos dessa forma na Igreja
 
 2) Um sinal visível de uma realidade espirutal e 
 dramatização da Palavra 
