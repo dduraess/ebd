@@ -14,7 +14,7 @@ O primeiro ponto então é que o batismo é uma instituição de Cristo como cab
 
 Vimos então, na aula passada em Gn 17, como Deus instituiu uma Aliança com a descendência de Abraão e colocou a circuncisão como sinal externo dessa Aliança. Vejam no vs. 1 a forma como Deus parece condicionar os termos dessa Aliança. Isso ocorre exatamente da mesma maneira como quando Ele disse a Adão que eles não deveriam comer da árvore do conhecimento do bem e do mal. Os teólogos chamam esse condicionamento da aliança com Deus, de Pacto das obras. Deus não disse isso porque esperava que Adão não comesse, então quando ele desobedeceu, Deus teria sido pego de surpresa e tivesse que fazer ajustes no que Ele tinha planejado. 
 
-Não me entendam mal, na verdade a quebra da Lei que são os termos da Aliança, é justamente o vínculo de gratidão que temos com o Senhor Jesus porque Ele tomou sobre Si as consequências de não termos guardado o pacto das obras e, por meio da fé fomos reconduzidos à destra de comunhão com Ele e com o Pai. 
+Não me entendam mal, na verdade a quebra da Lei que são os termos da Aliança, é justamente o vínculo de gratidão que temos com o Senhor Jesus porque Ele tomou sobre Si as consequências de não termos guardado o pacto das obras e, por meio da fé e não das nossas próprias obras ou do nosso 'livre arbítrio' fomos reconduzidos à destra de comunhão com Ele e com o Pai. 
 
 , nesse caso, os descendentes de Abraão não são segundo a carne,
 
