@@ -1,0 +1,1 @@
+Existem uma corrente teológica chamada teismo que diz que Deus não se envolve com os negócios dos homens, mais ou menos como se Deus tivesse tivesse criado as leis naturais ou causas secundárias e deixado o universo a sua própria sorte como tendo dado corda num relógio.
