@@ -23,3 +23,6 @@ Não vos compete conhecer tempos ou épocas... mas recebereis poder para serem m
 
 A necessidade de vigiar 
 iJo. 3.2-3, 4.17, 5 
+
+A primeira e a segunda ressurreição 
+=> cidade de Deus capítu vi ítulo
