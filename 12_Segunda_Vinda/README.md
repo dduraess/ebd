@@ -1,49 +1,49 @@
 Introdução 
 
-O objetivo dessas aulas é conseguirmos articular nas nossas próprias palavras aquilo que nós cremos (iJo.5.13). Não é por acaso que nossa religião se chama cristianismo, porque o conteúdo do Evangelho é a Pessoa de Cristo, por isso é importante pararmos nas lições para examinar cada detalhe do caráter e obra do Senhor Jesus. Temos visto que como Messias, o Senhor Jesus é o único Deus e o único Mediador entre Deus e os homens. Nesse sentido, Ele é o único que exerce, ao mesmo tempo, os papéis de profeta, sacerdote e rei. Vimos sobre o Seu estado de humilhação deixando a Sua glória com o Pai para ser reconhecido em figura humana, e que como profeta Ele é o Verbo, e representante de Deus diante dos homens. Como sacerdote, Ele é o representante dos homens diante de Deus, e ao mesmo tempo o sacrifício, o Cordeiro de Deus que tira o pecado do mundo. Nas últimas aulas vimos sobre a Sua exaltação como Rei na Ressurreição e na Ascenção, e hoje vamos continuar nesse assunto falando sobre a Segunda Vinda do Senhor Jesus. 
+O objetivo dessas aulas é conseguirmos articular nas nossas próprias palavras aquilo que nós cremos (iJo.5.13). E não é por acaso que nossa religião se chama cristianismo, porque o conteúdo do Evangelho é a própria Pessoa de Cristo, por isso é importante pararmos nas lições para examinar cada detalhe do caráter e obra do Senhor Jesus. Temos visto que como Messias, o Senhor Jesus é o único Deus e o único Mediador entre Deus e os homens. Nesse sentido, Ele é o único que exerce, ao mesmo tempo, os papéis de profeta, sacerdote e rei. Vimos sobre o Seu estado de humilhação deixando a Sua glória com o Pai para ser reconhecido em figura humana, julgado injustamente e morto na Cruz por mãos iníquas. Nas últimas aulas vimos sobre a Sua exaltação como Rei na Ressurreição e na Ascensão, e hoje vamos continuar nesse assunto falando sobre a Segunda Vinda do Senhor Jesus. 
 
-A necessidade de um julgamento final (i a certeza da Segunda Vinda)
+i.a A certeza da Segunda Vinda
 
-Na Antiga Aliança, a figura do rei tinha o papel de julgar os assuntos de toda a nação, tanto as questões políticas e militares como as demandas civís. Por exemplo, quando o autor do livro de Juízes vai falar sobre o estado de degeneração e caos social em que estava a nação física de Israel, vemos se repetir o estribilho: "Nesse tempo não havia rei em Israel, e cada um fazia o que era reto aos seus próprios olhos". ~~Nesse sentido, os judeus aguardavam um Messias que impusesse a justiça através do poder político e militar. Mas quando o Senhor Jesus veio pela primeira vez, eles não perceberam que um reino de Paz não seria possível se Ele não tratasse a questão do pecado e do estado de rebelião do nosso próprio coração contra Deus.~~ Então, nós que somos crentes, sabemos que Deus não iria instalar um reino de justiça e paz sem antes tratar na Cruz da questão do pecado e do estado de rebelião do nosso próprio coração contra Ele, mas como vimos em Hb. 2, mesmo depois da primeira vinda do Messias, ainda não vemos todas as coisas sujeitas a nova humanidade em Cristo. 
+Na Antiga Aliança, o rei tinha o papel de julgar os assuntos de toda a nação, tanto as questões políticas e militares como civis. Por exemplo, quando o autor do livro de Juízes vai falar sobre o estado de degeneração e caos social em que estava a nação física de Israel, vemos ele repetir: "Nesse tempo não havia rei em Israel, e cada um fazia o que era reto aos seus próprios olhos". Então, nós que temos uma revelação mais completa na história sobre o que Cristo fez, sabemos que Deus não iria instalar um reino de justiça e paz sem antes tratar na Cruz da questão do pecado e do estado de rebelião do nosso próprio coração contra Ele, e isso só vai ocorrer quando todos aqueles que Deus elegeu se entregarem a Cristo e quando todos os inimigos de Deus tiverem sido derrotados (sl 110.1).
 
-No prefácio do salmo 73, Asafe introduz o problema da prosperidade dos ímpios. Resumidamente, o que ele diz é que, enquanto estamos neste mundo, ainda não conseguimos ver claramente a diferença entre aquele que serve e o que não serve a Deus. Exceto quando exercitamos nossa fé, que é a certeza daquilo que esperamos e a convicção de coisas que Deus prometeu que ainda não vemos realizadas, isso pode nos perturbar, porque temos a impressão que os assassinos, os corruptos, os estelionatários, que usam de extorsão para com o pobre, vão escapar ilesos, e que nós que tememos a Deus é que somos os agravados, quando essas pessoas cruzam o nosso caminho. Acontece que como Rei, o Senhor Jesus é o herdeiro e proprietário de tudo o que existe, de forma que Ele é o maior interessado em zelar para pelo Seu nome, em que seja feita a justiça (Jr. 9.23-25). ~~Veja, por ex.,o que Davi diz no salmo 51, que é um salmo de contrição e arrependimento: Até que contemplou o caráter de Deus pela fé e entendeu qual será o fim deles.~~ 
+No prefácio do salmo 73, Asafe introduz o problema da prosperidade dos ímpios. Resumidamente, o que ele diz é que, enquanto estamos neste mundo, ainda não conseguimos ver claramente a diferença entre aquele que serve e o que não serve a Deus. Exceto quando exercitamos nossa fé, isso pode nos perturbar, porque temos a impressão que os assassinos, os corruptos, os estelionatários, que usam de extorsão para com o órfão e a viúva, vão escapar ilesos, e que nós que tememos a Deus é que somos os agravados. Esse aparente silêncio de Deus no sofrimento e na impunidade dos ímpios não significa que Deus não está julgando hoje o mundo, porque exatamente através dessas coisas Ele prova os crentes para sermos conformados a imagem do Senhor Jesus; e não destrói sumariamente o pecador para que ele tenha a oportunidade de arrependimento. Não podemos esquecer que antes Dele nos chamar no Evangelho de Cristo, nós também éramos inimigos de Deus (Rm. 2.14; iiPe. 3.9). 
 
-
-Eclesiastes diz 
-
-O próprio Immanuel Kant, que era agnóstico reconheceu que, como somos criaturas morais, e nem com todos os juízes e a polícia do mundo conseguimos fazer que a justiça seja feita de forma minimamente satisfatória nem de acordo com o nosso senso corrompido de justiça, sabemos pela consciência que tem de haver um ser supremo e justo que irá impor a justiça final nos assuntos humanos. 
-
-...
-
-Estamos entrando num assunto da Escatologia, que é o estudo das últimas coisas, e nesse contexto, o centro da nossa Teologia não deve ser a Escatologia própriamente dita, porque nas palavras do Senhor em Atos 1.6-8, não compete a nós conhecer tempos ou épocas que Ele reservou pela Sua exclusiva autoridade, mas devemos nos preocupar com a tarefe que nos foi dada, que é sermos testemunhas do Evangelho e proclamar as virtudes Daquele que nos chamou das trevas para Sua maravilhosa luz. Em outras palavras, o centro da nossa Teologia deve ser conhecer e estar preparados para anunciar o Evangelho de Cristo. Sobre isso, o pastor Paul Washer costuma dizer: "No dia da Volta de Cristo, saberemos tudo que precisamos saber sobre esse evento, mas mesmo depois que estivermos com a nossa mente glorificada, livre da influência do pecado, nunca vamos parar de conhecer e louvar as belezas de Cristo e do Evangelho."
-
-
-
-"Os crentes vivem entre dois dias: o dia em que o Senhor foi levantado naquele madeiro e o dia em que Ele voltará para renovar todas as coisas"
-
-Escatologia e significado de "os últimos dias" na profecia. 
-
-A necessidade, o imperativo racional de um julgamento final. 
-
-Como Messias e Rei, o Senhor veio instalar um reino de Paz 
-
-
-
-
-A vinda de Cristo para julgar não é com data marcada, (necessidade de vigiar) e a justificação pela fé não é uma licença para pecar.
-
-
-
-As diferentes interpretações sobre a Volta. 
-Todas as interpretações se posicionam em relação ao aparecimento visível do Senhor nas nuvens em glória, e o sua classificação é em relação  a esse evento em específico: Pré ou Pós-milenismo, Pré ou pós-tribulacionismo... etc.
-
-
+Acontece que como Rei, o Senhor Jesus é o herdeiro e proprietário de tudo o que existe, de forma que Ele é o maior interessado em zelar para pelo Seu nome, em que a justiça seja feita plenamente (Ec. 8.14, 12.13-14). O próprio Immanuel Kant, que era agnóstico reconheceu que, como somos criaturas morais, temos consciência do que é certo e errado, e mesmo com todos os juízes e a polícia do mundo, não conseguimos que a justiça seja feita de forma minimamente satisfatória. Por isso, todos nós sabemos que tem de haver um ser totalmente supremo e justo, capaz de impor a justiça final sobre os assuntos humanos. 
 
 At. 1.6-8
-Não vos compete conhecer tempos ou épocas... mas recebereis poder para serem minhas testemunhas
 
-A necessidade de vigiar 
-iJo. 3.2-3, 4.17, 5 
+Estamos entrando num assunto da Escatologia, que é o estudo das últimas coisas, mas como já dissemos, o centro da nossa Teologia não é conhecer tempos ou épocas que o Senhor não deixou revelado, justamente para que nós ficassemos alertas com as nossas obras no presente, e não deixarmos para depois, quando Ele estiver para voltar. Ele está dizendo aqui em outras palavras, que a agenda de Deus não é da nossa alçada, mas devemos nos preocupar com a tarefa que nos foi dada, que é sermos testemunhas em Jerusalém, que é o contexto imediato da nossa família, escola, trabalho... E, começando na nossa cidade, essa tarefa de proclamar as virtudes Daquele que nos chamou das trevas para Sua maravilhosa luz continua nas redondezas da Judeia e Samaria, nos envolvendo com missões transculturais, e não acaba até que esse Evangelho do reino seja pregado para testemunho a todas as nações, e, conforme Mt. 24.14, então firá o fim.  
 
-A primeira e a segunda ressurreição 
-=> Cidade de Deus, Livro XX, Capítulo vi 
+Se vocês compararem esse texto de Atos com os evangelhos sinóticos (Mt. 24, Mc. 13, Lc. 21) e toda literatura escatológica, tanto do Antigo como do Novo Testamentos, vão perceber que o objetivo ali é encorajar os crentes a perseverar mesmo em meio a perseguições, sabendo que a Igreja nunca parou e nunca vai morrer, nem parar de avançar até aquele Dia chegar. 
+
+O pastor Paul Washer fala sobre isso, dizendo que, no dia que o Senhor Jesus voltar, saberemos tudo sobre esse evento, mas o Evangelho, não. Sabe o que o apóstolo Pedro diz, que os santos anjos tem o desejo ardente de ficar admirando o Evangelho através da Igreja (iPe. 1.10-11; Ef. 3.10)? Mesmo depois que o nosso corpo ressuscitar e a nossa mente estiver livre da influência do pecado, terá passado centenas de milhões de anos vamos continuar olhando para Cristo maravilhados com o Evangelho, e mal vamos ter começado a aprender sobre isso. 
+
+i.b O significado de "os últimos dias" na profecia e a diferença de "último dia"
+
+A palavra 'dia' na literatura escatológica é usada, não para um intervalo de vinte e quatro horas medido no relógio, mas para designar o tempo do cumprimento dos propósitos de Deus na história e que, como o apóstolo Pedro diz, pode acontecer em um dia, ou levar mil anos para se cumprir completamente (iiPe. 3.1-8). Existe uma série de profecias, que devem acontecer nos "últimos dias" antes da Segunda Vinda, que é chamada nas Escrituras de "Dia do Senhor" ou "último dia". Então precisamos entender a diferença entre o que a Bíblia chama de "últimos dias" e "último dia". 
+
+Is. 2.2-4; Ap. 20.1-4. Então, nós entendemos que os "últimos dias" na Bíblia, são o período que se inicia no Primeiro Advento (AD), ou seja, na Vinda do Senhor Jesus, e que se encerra no último dia, quando Ele virá uma última vez, visivelmente, em glória para julgar os vivos e os mortos. Mt. 12.27-29; Jo. 12.31. É impossível vermos todos os textos relacionados no tempo desta aula, mas resumidamente, entendemos que Cristo é o mais forte que na Cruz amarrou o valente que é o diabo, e desde então Ele edifica Sua Igreja arrancando os eleitos (que eram seus bens nesse texto de Mt. 12) da tirânia do império das trevas, e a Igreja reina com Cristo no sentido da sua união mistica com Cristo e das suas orações (Ap. 8.3). Isso não significa que nesses "últimos dias" Deus já terminou com o diabo e as hostes do mal, mas que eles estão sendo segurados por esses mil anos para expansão da Igreja através da pregação do Evangelho. 
+
+Todas as linhas de interpretação escatológica são conhecidas pela forma como eles posicionam toda sequência dos eventos em relação a Volta de Cristo. Por exemplo, Pré-milenismo ou milenarismo é a visão que entende que a Segunda Vinda acontecerá antes desse milênio, quando haverá um reino visível de Cristo com os crente. Ocorre da mesma forma com as outras interpretações: Pós-milenismo é a Volta depois do milênio; pré ou pós tribulacionismo, dizem que a Volta é antes ou depois da Grande Tribulação. 
+
+ii. A maneira da segunda vinda (A. pessoal, B. física, C. visível e D. gloriosa)
+
+Existem muitas especulações sobre a Volta do Senhor, que nascem de uma falta de intimidade com a Bíblia, ou de tirar as passagens do seu contexto como pretexto para sugerir uma agenda que essas próprias pessoas inventaram para esse dia. Alguns tentando justificar o erro de marcar uma data, disseram que Cristo já veio secretamente, ou até que o Senhor voltará várias vezes (como dizem os dispensacionalistas, que já foi uma visão muito difundida, principalmente pelos carismáticos). Isso contraria o que está expresso na Palavra de Deus, de que a vinda será notória para todos os homens, vivos ou mortos e até mesmo um evento cataclísmico, como o Senhor Jesus (nos evangelhos sinóticos) compara esse Dia com a destruição de Jerusalém no ano 70 pelo general Tito. Mt. 24.23-27; At. 1.10-11; Zc 14.1-4. Se adotarmos uma interpretação literal do profeta Zacarias, de forma paralela ao texto de Atos 1, então o local da Volta de Cristo será no Monte das Oliveiras, mas dessa vez de uma maneira que todo o mundo verá. 
+
+iii. A razão da Segunda Vinda 
+
+B. Ressurreição
+
+Vimos que existe uma ardente expectativa na humanidade para que Deus julgue as injustiças dos homens, mas o apóstolo Paulo diz em Rm. 8.19 que a própria criação geme e suporta angústias na expectativa da revelação dos filhos de Deus, porque o Senhor Jesus diz que os sinais da Segunda Vinda serão como dores de parto de uma mulher que está para dar a luz, começando de forma mais sutil e ficando cada vez mais fortes, conforme o Dia se aproxima, e que não passaria aquela geração sem que todos aqueles sinais começassem a aparecer. Ele diz também que haveria guerras e rumores de guerras, traições, fomes e terremotos em vários lugares, mas que isso ainda não seria o fim. Nesse contexto, Mateus 24.14 diz: "E será pregado este evangelho do reino por todo o mundo, para testemunho a todas as nações. Então, virá o fim." Então, antes da ressurreição do último dia, existe uma primeira ressurreição que está acontecendo nesses últimos dias, quando os filhos de Deus estão nascendo, ou seja, estão sendo gerados para uma nova vida em Cristo enquanto o testemunho do Evangelho está sendo levado a todas as nações. Jo. 5.21-29. É notável que o Senhor está falando aqui de duas ressurreições diferentes, porque o verso 25 diz que já chegou a hora em que os mortos (e aqui está falando de pessoas que tem vida biológica, mas que estão mortos espiritualmente) que ouvirem a voz do Filho de Deus viverão. Já no verso 28, Ele não diz que a hora já chegou, e por isso está falando agora da Ressurreição do último dia. Cl 3.1-4; Ap. 20.5-6.
+
+C. O juízo final
+
+Mt. 13.37-43. Nesse Dia, Deus vai separar os Seus filhos dos filhos do diabo e vai deixar explicito publicamente as razões do que Ele está fazendo, de forma que as pessoas que serão julgadas vão reconhecer imediatamente a sua culpa e dobrar os joelhos em adoração. A partir de então todos os homens vão glorificar a Deus, mostrando através do castigo eterno que Ele não inocenta o culpado, ou louvando para sempre os méritos de Cristo na salvação dos crentes. Ap. 20.11-15. 
+
+D. Galardões
+
+Então, se os nossos pecados foram julgados na Cruz, e o Senhor diz em Jo. 5.24 que os crentes Nele não entram em juízo, então os crentes também serão julgados nesse último dia? Vimos o que Salomão diz no último versículo de Eclesiastes, que Deus vai trazer a juízo todas as obras e pensamentos dos homens, quer sejam boas ou más. Como será isso nós não sabemos, e por isso o Senhor nos diz para ficar alertas e vigiar. iiCo. 5.10. O que podemos saber é que não há nenhuma condenação para aqueles que estão em Cristo, e portanto em Jo. 5, Cristo está falando que não vamos passar por juízo de condenação. Também não sabemos como serão as recompensas, se será um corpo mais glorioso ou autoridade sobre mais cidades, o que sabemos é que Deus não apenas é justo, mas Ele também é bom para nos recompensar até por algo que Ele mesmo nos deu ou fez em nós. Ap. 4.9-11.
+
+Conclusão 
+
+No texto básico o Senhor Jesus diz qual é o critério que Ele vai usar no último dia, para diferenciar entre os que estarão à Sua esquerda e à Sua direita. O apóstolo João diz (iJo. 4.12): Ninguém jamais viu a Deus; se amarmos uns aos outros, Deus permanece em nós. Em outras palavras, como posso mostrar que eu amo a Deus, ou o que eu poderia oferecer para Deus, que já não é Dele? Ele ilustra isso no verso 20 da seguinte forma: "Se alguém disser: Amo a Deus, e odiar a seu irmão, é mentiroso; pois aquele que não ama a seu irmão, a quem vê, não pode amar a Deus, a quem não vê." Mt. 25.31-46. Isso significa que no último dia, nós seremos medidos com a mesma medida que medimos no dia a dia, nas ações e palavras com que, através do próximo que nós podemos ver e ajudar, mostramos se amamos ou não a Cristo a quem não vemos hoje fisicamente.
