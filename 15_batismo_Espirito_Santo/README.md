@@ -4,32 +4,44 @@ Nas aulas anteriores vimos que nestes últimos dias Deus está reunindo o Israel
 
 João 3.1-8
 
-1) Regeneração
+1) O batismo do Espírito Santo é o que nos regenera
 
-1.a.i) verso 3: O batismo do Espírito Santo é a única maneira de alguém ver o Reino de Deus.  
+1.a) Do que o Senhor está falando aqui? O que significa nascer de novo, ou mais especificamente no grego, 'nascer do alto'? A expressão 'Novo' Nascimento pressupôe um velho nascimento segundo a natureza da carne lá na maternidade, assim como regeneração significa uma geração de natureza espiritual, diferente daquela quando nossos pais nos conceberam. O verso 6 diz: "O que é nascido da carne é carne; e o que é nascido do Espírito é espírito.", como vimos em Jo. 1 que esse novo nascimento é segundo a vontade de Deus e não do homem.
+
+Ef. 2.1-3 O texto fala aqui de um estilo de vida de andar em delitos e pecados, e fazer a vontade da carne e dos pensamentos, que é evidência nas pessoas que têm essa qualidade de vida, que na verdade elas estão mortas. Por isso, mortos ali, não significa que não tínhamos vontade para nada, mas que só tinhamos vontade para as coisas cujo resultado é a morte do castigo eterno. Rm. 6.16, 21. Cada um conhece o seu próprio coração e sabemos que antes de entender o que Cristo fez por nós, não estávamos atraídos pela beleza de Deus e, ao invés disso, amávamos o pecado intensamente. Indo para um extremo, se você perguntar para um assassino em série por que ele não parou no primeiro assassinato, sabendo das consequências desse ato? (Se ele for sincero), dirá que a sua vontade e os seus esforços eram voltados para isso, de forma que ele não conseguia parar. Rm. 8.5-8. 
+
+Jo. 5.39-40. Aqui fica claro de que vida Cristo está falando, primeiro porque Ele qualifica a vida que Ele dá como 'vida eterna' e, no vs. 40, Ele não está falando no cemitério para pessoas fisicamente mortas, então é claro que embora eles tivessem a vida biológica, eles ainda não tinham sido regenerados. Lc. 9.59-60. Mais uma vez, o que o Senhor quer dizer, em outras palavras, é: Deixa que aqueles que estão mortos com a morte espiritual sepultem os mortos com a morte da corpo; mesmo porque, quem está morto fisicamente não tem capacidade de enterrar outro morto. 
+
+1.b) verso 3: O batismo do Espírito Santo é a única maneira de alguém ver o Reino de Deus.  
 
 Nos falta tempo aqui para falar sobre o Senhor Jesus como a luz do mundo, mas existem duas realidades: uma que nós vemos com os olhos da carne e outra que não podemos ver senão com os olhos da fé, que o pastor Francis Schaeffer, por ex., chama de segundo andar. Nesse segundo andar se desenrola uma guerra espiritual que até o fim vai deixar claro quem é o joio e quem é o trigo, ou seja, vai decidir o destino eterno das pessoas. iiRe. 6.15-17; Pv. 4.18. C. S. Lewis costumava dizer que podemos ver a Cristo e saber que Ele é nosso Deus e Salvador, não porque O vemos agora fisicamente, assim como sabemos que o sol saiu pela manhã, porque conseguimos ver todas as outras coisas a nossa volta por meio da sua luz, sem necessidade de abrir a janela e ver que o sol está lá. 
 
-
 Is. 6.8-10; Jo. 14.16-19; Mt. 11.25-27; iiCo. 4.3-4; iiTs. 2.9-12
 
-1.a.ii) verso 5: O batismo do Espírito Santo é a única maneira de entrar no Reino de Deus.
+1.b) verso 5: O batismo do Espírito Santo é a única maneira de entrar no Reino de Deus.
 
-1.b) vs. 4, 6: Quem são os que precisam do batismo do Espírito Santo (nascer de novo)? Nascido da carne é carne Ef. 2.1... o nosso estado de morte Rm. 8.1-7
+É importante dizer que não existe algo como um cristão não batizado com o Espírito Santo, ou um crente não nascido de novo. Se alguém não nascer de novo, não pode ver e muito menos entrar no Reino de Deus. Existe um equivoco que pretendemos tratar em seguida, sobre o que os carismáticos chamam de 'Segunda Benção', onde haveria uma confirmação posterior à obra de regeneração do Espírito Santo, onde supostamente a evidência desse selo seria o ato público de falar em línguas. Mas isso não encontra base bíblica e é refutado particularmente em iCo. 12-14 (que vocês podem ler em casa). Ef. 1.13. O apóstolo Paulo está dizendo aqui, que a partir do momento que cremos no Evangelho de Cristo somos selados com o Espírito Santo, e não depois de atingir algum grau futuro de perfeccionismo.
 
-Os mortos ouvido a voz do Filho do Homem e os que derem ouvidos viverão
-No capítulo 10 deste mesmo evangelho o Senhor nos diz que as suas ovelhas ouvem a Sua voz e o seguem e que Cristo como pastor, veio para que, dessa forma, as ovelhas tenham vida. As 
+Então, em algum momento quando acontecer a Volta de Cristo, Deus vai trazer a Nova Jerusalém de maneira visível e poderemos ver e entrar fisicamente com nosso corpo glorificado no deleite da presença de Cristo, mas existe um sentido que nós já entramos no Reino de Deus e reinamos com Cristo neste mundo, a partir do momento que recebemos o batismo com o Espírito Santo e somos regenerados para viver a vida abundante, da qual Cristo fala em Jo. 10.10. Ef. 2.6; iiCo. 5.17; Cl. 3.1-4. 
 
-1.c) vs. 5: O que é preciso para nascer de novo (ou qual a evidência do batismo do Espírito?). Não é suficiente nascer da água, ou seja, apenas na aparência externa, mas da água (as obras) e do espírito (recessos do coração). Será que a evidência é falar em línguas? 
+Por outro lado, não podemos entrar no Reino de Deus, senão segundo a vontade soberana do Espírito Santo em nos dar a fé (vs. 8). A figura que o Senhor usa para ilustrar aqui, é que, assim como um bebê não pode fazer nada a respeito de nascer ou não neste mundo, não é pelo nosso próprio esforço que nós entramos no Reino de Deus. Veja o caso de Nicodemos, para quem o Senhor Jesus dirige essas palavras. Ele era um fariseu, ou seja, um religioso e mestre de alta posição Israel, e mesmo assim o Senhor diz que ele precisava nascer de novo. É claro que é um grande privilégio que Deus nos deu de termos nascido num lar cristão. A questão aqui, é que não importa o que nós sabemos ou se nascemos na terceira geração de presbiterianos, porque não podemos levar a nossa história e o nosso currículo para a nossa relação com Deus. De forma análoga, o Senhor diz em outro lugar (Mt. 18.3), que se alguém não se tornar como uma criança não pode entrar no Reino dos Céus. Será que isso significa que toda criança nasce crente? É evidente que não... Isso significa que uma criança não tem realizações nem uma história, mas ela é totalmente dependente e tem confiar nos seus pais para receber tudo do que ela precisa.   
 
-1.d) vs. 8: A eleição e as obras do esforço humano... 'O Espírito sopra aonde quer...' Assim como um bebê não escolhe nascer neste mundo... 
+"quem não nascer da água e do Espírito não pode entrar no reino de Deus" Vamos ver mais detalhadamente sobre o batismo propriamente dito nas próximas aulas, mas apenas brevemente, no contexto do batismo do Espírito Santo, embora isso não queira dizer que a salvação esteja condicionada ao rito externo do batismo com água, com essas palavras o Senhor está ratificando a necessidade de que alguém que foi batizado com Espírito Santo deve ser batizado como testemunho público de que ele faz parte da Igreja. Isso liga a realidade espiritual de um novo coração que essa pessoa já recebeu, com a evidência externa dos frutos que uma nova vida deve produzir, no contexto da comunhão da Igreja e do exercício dos dons para edificação do corpo de Cristo. 
 
-Atos 1.6-8
+2) Equívocos sobre o ministério e o batismo do Espírito Santo
 
-1) O que a Bíblia diz sobre como reconhecer o batismo com o Espírito Santo, ou qual a evidência de alguém ser cheio do Espírito Santo?
+Em primeiro lugar, como o pb. Alexandre falou na semana passada, o fato de que o Espírito Santo capacitava as pessoas para ofícios temporários na nação de Israel e que essas pessoas não eram necessariamente crentes (como é o caso de Saul e Ciro, por exemplo), não significa que Deus agia de uma forma antes do Pentecostes e, de maneira diferente depois. No Antigo Testamento, para que alguém fosse crente, essa pessoa precisava ser regenerada pelo batismo do Espírito Santo, assim como por outro lado, Ele continua agindo na humanidade, dando dons da Sua graça comum para pessoas que não são crentes. Veja que o Senhor Jesus diz para Nicodemos que, como mestre nas coisas espirituais ele deveria entender espiritualmente o sentido do novo nascimento, porque é assim que o Antigo Testamento fala sobre a operação do Espírito Santo. Jr. 31.31-34; Ez. 36.26-27, 37.3-6.
 
-2.a) O batismo do Espírito Santo em Atos...
-2.a.1) Atos 1.6-8; Jerusalém, Judéia, Samaria e 'os confins'...
+2.a) Sobre a 'Segunda benção'
 
-2.b) Mateus 7 e os falsos mestres 
-I João os anticristos e, 'provem os espíritos, se procedem de Deus...' 
+O que a Bíblia diz sobre como reconhecer o batismo com o Espírito Santo, ou qual a evidência de alguém ser cheio do Espírito Santo? Será que o relato histórico do livro de Atos endossa o dom de línguas como uma marca de todos os crentes regenerados? 
+
+Então, o Senhor Jesus promete enviar o Espírito Santo conforme registrado em Atos 1.8: "...recebereis poder, ao descer sobre vós o Espírito Santo, e sereis minhas testemunhas tanto em Jerusalém como em toda a Judéia e Samaria e até aos confins da terra." A partir dessa, o relato de Atos mostra o cumprimento do derramento do Espírito Santo exatamente nos lugares e na ordem que Cristo prometeu. Então, assim como Deus fazia milagres por meio dos apóstolos para testemunhar que Cristo é o Messias e Deus conosco, Deus também operou o milagre do dom de língua nesses marcos como sinal do cumprimento da promessa de dar o Espírito Santo sobre toda a carne, ou seja, não apenas para os judeus, mas também para os gentios. 
+
+2.a.1) Jerusalém: Atos 2.4-6
+2.a.2) Judeia e Samaria: Atos 8.14-17; 10.44-47
+2.a.3) até os confins da terra: Atos 19.4-6
+
+Em iCo. 12 o apóstolo Paulo fala muito claramente que o Espírito é um, mas que os dons são diversos e que nem todos tem dom de línguas. Ele ilustra com a figura do corpo, usando o argumento de que, se todos os membros do corpo de Cristo tivessem a mesma função, quem iria exercer as outras funções?
+
+É notável que depois do Pentecostes e do cumprimento desses marcos no livro de Atos, não vemos em nenhum lugar no Novo Testamento dizendo que os crentes manifestariam um sinal externo no ato da conversão falando em línguas, nem alguma instrução dizendo que vamos reconhecer os falsos profetas quando eles não falarem em línguas, nem se encham do Espírito falando entre vós em línguas. iJo. 4.1-3 Muito pelo contrário, o sinal de alguém que fala movido pelo Espírito de Deus é a mensagem conspícua do Evangelho em linguagem clara de quem está ouvindo. iCo. 14.23-25.
