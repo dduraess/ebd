@@ -1,0 +1,5 @@
+Em vista dos temas que falam sobre o Senhor Jesus no curso, quanto a diferença entre os tópicos das lições por serem assuntos que se interseccionam, tratar a '5 divindade' no sentido de que Cristo no princípio estava com Deus e era Deus antes que houvesse tempo, o Mediador da criação e motivo pelo qual Deus Pai decretou a criação de todas as coisas (o tema já é iniciado na lição, '4 existência', na qual existe também a deixa para tratar da providência na criação e queda). 
+
+Tratar na lição 6 o senhorio no sentido individual de Rm. 12 (Jo 14 e 15 sois meus amigos se têm os Meus mandamentos e os guardam; como Me chamam de Senhor se não fazem o que Eu vos mando?); esse é o contexto ideal para tratar do livre arbítrio, o papel da Lei e a questão da ineficácia da justiça e das obras pessoais nossas.  
+
+Na lição '11 realeza' (ou reino de Deus), deve-se tratar dos últimos dias, quando o Senhor estabelece um reino de paz no tempo do Milênio. Nesse período, acontece o despojamento do império das trevas, em que Cristo está preparando habitação para os crentes através do novo nascimento, que Ele chama em (João 5.24-28 e Ap. 20.5) de primeira ressurreição. 
