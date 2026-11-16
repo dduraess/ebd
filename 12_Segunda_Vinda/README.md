@@ -1,6 +1,16 @@
 O Messias é o Juiz apontado por Deus
 
-Como foi apresentado na aula anterior, a nossa cosmovisão é cristocêntrica, porque todas as coisas que existem foram feitas por meio de Cristo, subsistem Nele e Ele também é o herdeiro da criação, de forma que tudo foi feito para ser entregue ao Senhor Jesus. Não é por acaso que somos chamados cristãos, e isso fica claro no decorrer dessas aulas em tentamos apresentar uma visão geral do quê cremos, no fato de a maioria das lições da primeira revista falam somente sobre a pessoa de Cristo. O Senhor Jesus não é o Mediador apenas no sentido de que intercede por nós, mas Ele é o Mediador da própria criação. Deus criou e sustenta o mundo por meio de Cristo. O Pai planejou que Ele fosse o Mediador de uma nova Aliança no Seu sangue de forma que através de Cristo, Deus redime a criação e cria um novo céu e uma nova terra. E não apenas isso, mas o nosso assunto de hoje é que Deus Pai confiou todo o julgamento ao Seu Filho unigênito, de forma que o mesmo Mediador é aquele que vai voltar mais uma vez neste mundo para julgar vivos e mortos, homens e anjos. João 5.19-23. 
+Como foi apresentado na aula anterior, a nossa cosmovisão é cristocêntrica.
+Não é por acaso que somos chamados cristãos, 
+e isso fica claro nessas aulas em tentamos apresentar uma visão geral do quê cremos, 
+no fato de a maioria das lições da primeira revista falam somente sobre a pessoa de Cristo. 
+O Senhor Jesus não é o Mediador apenas no sentido de que intercede por nós, 
+mas Ele é o Mediador da própria criação. 
+Deus criou e sustenta o mundo por meio de Cristo. 
+Por meio do Seu sangue, Deus redime a criação e cria um novo céu e uma nova terra. 
+E não apenas isso, mas Deus Pai confiou todo o julgamento ao Seu Filho unigênito, 
+de forma que o mesmo Mediador é aquele que vai voltar mais uma vez neste mundo 
+para julgar vivos e mortos, homens e anjos. João 5.19-23.
 
 O Messias é o legislador e o juiz
 
@@ -34,9 +44,16 @@ Is. 2.2-4; Ap. 20.1-4. Então, nós entendemos que os "últimos dias" na Bíblia
 
 Todas as linhas de interpretação escatológica são conhecidas pela forma como posicionam toda sequência dos eventos em relação a Volta de Cristo. Por exemplo, Pré-milenismo ou milenarismo é a visão que entende que a Segunda Vinda acontecerá antes desse milênio, quando haverá um reino visível de Cristo com os crentes. Ocorre da mesma forma com as outras interpretações: Pós-milenismo é a Volta depois do milênio; pré ou pós tribulacionismo, dizem que a Volta é antes ou depois da Grande Tribulação. 
 
-Algo notável, é que diferente de algumas correntes escatológicas, a Bíblia diz que embora a Igreja nunca será destruída e o Evangelho deve chegar até os confins da terra (como para nós aqui no Brasil), a situação geral do mundo não vai melhorar. Lc. 17.26-30, 18.8. Não importa o nível de educação e cultura, o IDH das nações, ou a quantidade de conhecimento tecnológico, nós não iremos construir um paraíso aqui enquanto o Senhor não trouxer a Jerusalém que desce do céu e fizer um novo céu e uma nova terra. Não significa que não devemos nos esforçar para redimir a cultura através da pregação do Evangelho, mas isso só vai acontecer quando o Senhor Jesus voltar.
 
 ii. A maneira da segunda vinda
 
 O que a Bíblia diz que precisamos saber sobre esse dia do julgamento? Mc. 13.5-6, 21-23, 26. A primeira coisa que o Senhor mesmo nos diz no sermão escatológico dos evangelhos sinóticos (Mt. 24, Mc. 13 e Lc. 21) é para não sermos enganarmos porque a Sua volta será pública (todo olho verá), pessoal (em carne e osso) e gloriosa. Então, se alguém como se falasse em nome de Cristo, disser que Ele vai voltar em determinada data (já que ninguém sabe isso), que Ele já veio e ninguém viu, ou que surgiu outra pessoa em Israel que estão dizendo que é o Messias, não devemos acreditar.  
+
+Mc. 13.9, 11-13. Algo notável, é que diferente de algumas correntes escatológicas, a Bíblia diz que embora a Igreja nunca será destruída e o Evangelho deve chegar até os confins da terra (como para nós aqui), a situação geral do mundo não vai melhorar. Lc. 17.26-30, 18.8. Não importa quanto políticos conservadores elegemos, o nível de educação e cultura, o IDH das nações, ou a quantidade de conhecimento tecnológico, nós não iremos construir um paraíso aqui enquanto o Senhor não trouxer a Jerusalém que desce do céu e fizer um novo céu e uma nova terra. Não significa que não devemos nos esforçar para redimir a cultura através da pregação do Evangelho, mas isso só vai acontecer quando o Senhor Jesus voltar.
+
+Além disso, esse sermão nos dá vários sinais que devem preceder a Segunda Vinda Mc. 13.7-8. Ele diz que haverá fomes, guerras e desastres naturais, avanço da ciência e o amor se esfriando das pessoas, e em Mt. 24.34, que não passaria aquela geração sem que essas coisas acontecessem. Mas o que isso quer dizer? Porque morreu toda aquela geração e o Senhor Jesus ainda não veio. Veja que no vs. 8 o Senhor compara esses sinais antes da Segunda Vinda com as dores de uma mulher que está para dar à luz a uma criança. Essa ilustração é muito interessante, porque é como se durante todo o período entre a vinda de Cristo e o Seu retorno a Igreja estivesse sendo formada no ventre da história humana e tudo fosse se completar na Volta de Cristo, quando também acontecerá a ressurreição dos mortos. É interessante que essa figura da concepção também aparece em outros textos. Rm. 8.19-23; Jo. 16.16-21. Então, da mesma forma que as dores de uma gravidez começam bem antes do parto, o Senhor diz que todo aqueles sinais começariam naquela geração, mas que isso não seria o fim, e no vs. 14 de Mateus 24, que o Evangelho seria pregado para testemunho a todas as nações, e então sim virá o fim. 
+
+Conclusão
+
+Em João 5, o mesmo texto que diz que Deus designou ao Senhor Jesus para ser juiz de todos os seres morais, no verso 24 diz que aquele que crê em Cristo não entra em juízo. Será que isso significa que os crentes não serão julgados nesse último dia? Ap. 20.11-12. Não sabemos exatamente como isso vai acontecer, mas Agostinho fala no Livro xx da Cidade de Deus, que esses livros do vs. 12 seria como um dom que Deus dará de lembrarmos naquele momento de todas as nossas obras. Mas e se naquele Dia eu não tiver obras o suficiente? João 6.28-29. Um aspecto muito importante da obra de Cristo é que como Mediador, Ele não apenas pagou todas as nossas faltas na Cruz mas cumpriu toda Lei e viveu uma vida perfeita, de forma que quando cremos no Senhor Jesus, somos unidos a Ele pela fé, e Deus considera a Sua reputação perfeita como se fosse nossa. Rm. 5.18-19. Rm. 8.1. Então quando o Senhor diz que aquele que crê não entra em juízo, a palavra juízo pode ser entendida como condenação. 
 
