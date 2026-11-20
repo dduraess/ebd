@@ -1,4 +1,4 @@
-Eleição / Adoção / Chamado eficaz 
+Chamado eficaz 
 
 Igreja vem da palavra grega, que significa 'chamados para fora', e talvez a figura mais importante disso, seja quando Deus ordena a faraó, por meio de Moisés que deixe o Seu povo sair do Egito para adorar no deserto (Ex. 5.1-3). Então 'igreja' se trata de um grupo de pessoas que foram chamadas para sair do mundo e separadas daquilo que é imundo para se tornar um povo de propriedade exclusiva de Deus (Ap. 18.2-4). É notável que essa palavra não designa nenhum outro grupo religioso, mas apenas aqueles que são conhecidos como cristãos, ou seja, que adoram ao Senhor Jesus e O reconhecem como o autor e consumador da nossa fé, o único nome dado entre os homens pelo qual importa que sejamos salvos. Não usamos essa palavra 'igreja' para uma congregação de judeus ou mulçumanos, e apesar dessa figura de ser chamado para fora do Egito para um lugar que Deus separou ser tão cara à nação física de Israel, se você chamar um judeu ortodoxo para igreja, por ex., ele vai saber imediatamente que esse não é o lugar que a maior parte dos judeus se reúnem para adorar. Essa distinção é importante porque João na introdução do seu evangelho, diz o que Cristo veio para os Seus (o Senhor Jesus é judeu) e esses não o receberam e por causa da rejeição deles, o Evangelho foi estendido a nós gentios (Mt. 15.24, 21.43). 
 
@@ -26,7 +26,9 @@ Aqueles que ouvirem Sua voz, viverão.
 Jo. 10.1-6
 As minhas ovelhas conhecem a Minha voz e Me seguem... 
 
-Santificação
 Dia da convocação é sábado ou domingo?
+
 A nação de Israel e a Igreja  
+
 Marcas da verdadeira Igreja
+
