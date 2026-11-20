@@ -8,12 +8,9 @@ Significa que nascemos escravos do pecado e alienados da comunidade da Aliança 
 
 Que assim como um morto não é capaz de responder a nenhum estimulo, antes de ser regenerados pelo Espírito Santo, não éramos capazes de atender chamado de Cristo para deixar o pecado. Não é o caso de que nós íamos pecar contrariados, como alguns criminosos dizem para atenuar sua culpa, que o diabo os induziu a cometerem o crime, mas tínhamos prazer naquilo. É isso que Paulo está falando em Romanos 1, quando diz que Deus está irado contra os homens que sufocam o que eles já sabem que é certo e errado conforme o caráter de Deus impresso nas suas consciências, para continuar praticando a impiedade e injustiça.
 
-O nosso desejo era pecar, e nada neste mundo iria nos parar senão a ação sobrenatural regeneração (figura de Lázaro)
+O nosso desejo era pecar, e nada neste mundo iria nos parar senão a ação sobrenatural regeneração (figura de Lázaro). Jeremias 13.23 Pode o leopardo mudar as suas manchas? 
 
-
-Pode o leopardo mudar as suas manchas? 
-
-Nesse ponto, já há muitos séculos existe uma discussão entre diversas denominações da própria igreja cristã, sobre qual o papel o ser humano desempenha na salvação. O que entendemos como a resposta bíblica na doutrina reformada, é a do Chamado Eficaz, ou Vocação Irresistível, quer diz que assim como Lázaro morreu e não podia fazer nada a respeito disso, senão apodrecer no túmulo até que o Senhor Jesus viesse e o chamasse para fora, nós também não podíamos fazer nada sobre a nossa natureza caída e o nosso estado de corrupção até que, assim como no princípio Deus chamou todas as coisas do nada a existência, o Espírito de Cristo pelo Evangelho nos gerasse como nova criatura. 
+Nesse ponto, já há muitos séculos existe uma discussão entre diversas denominações da própria igreja cristã, sobre qual o papel o ser humano desempenha na salvação. O que entendemos como a resposta bíblica na doutrina reformada, é a do Chamado Eficaz, ou Vocação Irresistível, quer diz que assim como Lázaro morreu e não podia fazer nada a respeito disso, senão apodrecer no túmulo até que o Senhor Jesus viesse e o chamasse para fora, nós também não podíamos fazer nada sobre a nossa natureza caída e o nosso estado de corrupção até que, assim como no princípio Deus chamou todas as coisas do nada a existência, o Espírito de Cristo pelo Evangelho nos gerasse como nova criatura. Veja, o que Genesis 1 diz sobre o 'faça-se' de Deus, não significa como dizem alguns físicos que Deus pegou uma casca de nós extremamente massiva ou seja, que como o homem que não cria nada mas apenas transforma o que Deus já fez, pegou a matéria pré-existente e transformou no mundo que temos. Não é isso que quer dizer terra sem forma e vazia... Muito pelo contrário, quando Deus nos converteu o que Ele encontrou não foi nada, mas a nossa própria oposição e rebeldia ao Seu chamando para sair. 
 
 
 Discussão sobre sinergismo
@@ -23,10 +20,10 @@ mas a todos quantos cream Nele e O receberam, Ele deu a esses o poder, a autorid
 
 Mortos em delitos e pecados... 
 
-Jo. 5.24-29
+Jo. 5.24-25
 Aqueles que ouvirem Sua voz, viverão. 
 
-Jo. 10 
+Jo. 10.1-6
 As minhas ovelhas conhecem a Minha voz e Me seguem... 
 
 Santificação
